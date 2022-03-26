@@ -1,0 +1,1 @@
+pelo amor de deus eu tô muito confusa aaaaaaaaaaaaaaaaaaaaaaaa
